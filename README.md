@@ -1,1 +1,1 @@
-# github-racism
+# github-freenode-of-racism
